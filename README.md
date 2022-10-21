@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Yara Matani
+- 👋 Hi
 
 
